@@ -1,4 +1,5 @@
 # Cubo Piramide Jesus Cota 220790768
- ![Piramide - Lejos](https://github.com/JesusACotaL/Cubo-Piramide-Jesus-Cota-220790768/assets/97976469/4fc67f44-d6ec-4fcb-8543-29bf7817a187)
+![Piramide - Cerca](https://github.com/JesusACotaL/Cubo-Piramide-Jesus-Cota-220790768/assets/97976469/a55fce4e-8eb5-48ed-9c04-2ce0f86277dc)
 
-![image](https://github.com/JesusACotaL/Cubo-Piramide-Jesus-Cota-220790768/assets/97976469/61b07f8d-dd42-4d8c-ba90-dfd160b23336)
+
+![Piramide - Lejos](https://github.com/JesusACotaL/Cubo-Piramide-Jesus-Cota-220790768/assets/97976469/5e6fa3c2-9771-4bb0-a786-2bf52ce5734f)
